@@ -1,0 +1,2 @@
+# note
+catatan pembelajaran diri
